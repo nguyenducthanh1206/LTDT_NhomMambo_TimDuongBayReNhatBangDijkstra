@@ -26,5 +26,6 @@ Trịnh Khải Đạt 			50.01.103.011
 Nguyễn Đức Thành 		50.01.104.149
 
 Giảng viên hướng dẫn: TS. Nguyễn Viết Hưng
+Trợ giảng: Tạ Công Phi
 
 Ngày nộp: 24/12/2025
